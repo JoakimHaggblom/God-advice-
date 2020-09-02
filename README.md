@@ -1,2 +1,2 @@
-# Good advice 
+# God advice 
  
